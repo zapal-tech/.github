@@ -29,4 +29,4 @@ Ready to unlock your tech future? Contact us today to learn more about our servi
 - 📧 Email: [hello@zapal.tech](mailto:hello@zapal.tech)
 - ☎️ Phone: [+380979589470](tel:+380979589470)
 
-🚀 Let's achieve greatness together! 🚀
+🚀 Let's unlock your tech future together! 🚀
